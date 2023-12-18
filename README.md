@@ -1,1 +1,1 @@
-# Ministry-of-Agriculture-Competition-2021-
+# Ministry-of-Agriculture-Competition-2021
